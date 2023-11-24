@@ -13,5 +13,9 @@ Dosen Pengampu : Donny Maulana, S.Kom.,M.M.S.I
 
 
 
-https://github.com/dhomuhammad/tugas9/assets/130027527/7d0bc29a-2332-48bd-af0c-36e3aa743e08
+
+
+https://github.com/dhomuhammad/tugas9/assets/130027527/f2dea78d-6725-4a6d-ac1e-56de10780800
+
+
 
